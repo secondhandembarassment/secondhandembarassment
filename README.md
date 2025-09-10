@@ -10,6 +10,6 @@
 </p>  
 ㅤㅤ
 <p align="center"><b>Milo</b>ㅤ||ㅤany pronouns / terms</p>
-<p align="center">slow replies ;ㅤusually offtab</p>
+<p align="center">c + h OK ;ㅤalways happy to chat/int</p>
   
 
