@@ -15,7 +15,7 @@
 </p>  
 ㅤㅤ
 <p align="center"><b>Milo</b>ㅤ||ㅤany pronouns / terms</p>
-<p align="center">c+h always OKㅤ;ㅤalways happy to chat</p>
+<p align="center">C + H is ✅ ;ㅤalways happy to chat</p>
 <p align="center">
 <img src="https://64.media.tumblr.com/5381946ed1fe5b94297b75e0effb59d7/4e325ded17b381af-31/s2048x3072/c9412988206cd365d955993929a4267ee9151e7a.pnj" width="500">
 </p>
