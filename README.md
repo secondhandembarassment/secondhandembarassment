@@ -2,13 +2,14 @@
 
 &nbsp; 
 
-ㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤ<i>"and the universe said i love you because you are love."</i>
-
+ㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤ
+<p align="center"><i>"and the universe said i love you because you are love."</i></p>
 
 <p align="center">
-  ㅤㅤ<img src="https://file.garden/aFtNNnPeqRQlrv-o/other%20rentries/polaroid_eve.gif" width="400">
+<img src="https://64.media.tumblr.com/49be84abe827499b4ab60765b6d3293c/tumblr_inline_n3jrmga1UP1rx7gub.jpg" width="400">
 </p>  
 ㅤㅤ
-ㅤㅤ
-<p align="center">
-ㅤㅤ slow repliesㅤㅤusually offtab/afkㅤㅤC+H is A-OK
+<p align="center"><b>Milo</b>ㅤ||ㅤany pronouns / terms</p>
+<p align="center">slow replies ;ㅤusually offtab</p>
+  
+
